@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently looking for jobs in healthcare It as Implementation analysts, interoperability trainee etc
+A passionate dentist expanding career into healthcare IT, analytics, and project management, with growing hands-on experience across clinical and digital health domains.
 
 
 ## 🌐 Socials:
